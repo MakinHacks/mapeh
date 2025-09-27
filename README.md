@@ -1,1 +1,1 @@
-If you want to start it press on the file named "Launch.vbs"
+here are the links for it
